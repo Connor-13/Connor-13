@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Connor-13
+- 👋 Hi, I’m Connor Wilson @Connor-13
 - 👀 I’m interested in innovating tech, and building with AI
 - 📫 Reach me @ wilsonconnor721@gmail.com
 
